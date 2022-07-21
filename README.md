@@ -1,0 +1,1 @@
+# Lisata06-Ajustes
